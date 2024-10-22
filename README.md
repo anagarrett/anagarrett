@@ -15,7 +15,7 @@
 
 - 📝 Escrevo regularmente no site [http://joseassis.com.br/](http://joseassis.com.br/)
 
-- 📫 Contato: **ana.garrett@globalhitss.com.br**
+- 📫 Contato: **anacurigarrett@gmail.com**
 
 - 📄 Sobre mim: [https://www.linkedin.com/in/ana-paula-c-garrett-pcd-050aa5187/?trk=eml-security_ato_challenge_send_pin-header-6-profile](https://www.linkedin.com/in/ana-paula-c-garrett-pcd-050aa5187/?trk=eml-security_ato_challenge_send_pin-header-6-profile)
 
